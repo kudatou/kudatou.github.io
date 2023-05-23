@@ -1,2 +1,2 @@
 # kudatou.github.io
-https://app.52xiyou.com/m/1/101744604693/103306.html
+永远相信美好的事情即将发生
